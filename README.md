@@ -1,0 +1,1 @@
+# Weekend-Getaway-Ranker
